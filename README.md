@@ -50,7 +50,7 @@ I like to mix things up from Web Development to UI/UX Designing, Graphic Designi
 
 - **📫 How to reach me :**  
 
-    Email me at jatin4762@gmail.com
+    Email me at ak397783@gmail.com
     
 - **😄 Pronouns :** He/Him
 - **⚡ Fun fact :** Really like watching Anime and Web series
